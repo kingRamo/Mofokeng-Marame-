@@ -1,2 +1,2 @@
 # Mofokeng-Marame-
-Im very secretive and creative man i joined blockchaim without any idea how it works
+Im very secretive and creative man i joined blockchaim to make changes around the world
